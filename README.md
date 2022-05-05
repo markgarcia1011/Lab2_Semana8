@@ -1,1 +1,2 @@
-# Lab2_Semana8
+Ingrid Karina Alvarado Vllacorta
+Josue Jared De Leon Garcia
